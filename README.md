@@ -1,1 +1,0 @@
-# Quality_of_Life-_Canada
